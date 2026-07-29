@@ -4,7 +4,7 @@
 Building high-quality tools and MMORPG in the process.
 
 ### If you like what we do:
-We work hard, please send $ for coffee here: [ko-fi link](https://ko-fi.com/zaya69)
+[ko-fi link](https://ko-fi.com/zaya69)
 
 
 
